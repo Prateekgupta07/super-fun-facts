@@ -8,3 +8,5 @@ pagal hoke nacho aur nach ke pagal ho jao'
 daru daru daru daru
 jo na nache usko maru
 swag wali topi meri swag wali topi
+oh gaadi wala aaya ghar se kachra nikal 
+gaadi wala aaya ghar se kachra nikal
